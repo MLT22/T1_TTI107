@@ -1,1 +1,0 @@
-Gustavo Fernandes Arantes Maluta; RA: 23.10050-8
